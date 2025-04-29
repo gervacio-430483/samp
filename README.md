@@ -1,6 +1,4 @@
-# 🎬 My World of Stories
-
-> *"Stories are the bridges that connect different worlds, hearts, and dreams."*
+# 🎬 My Favorite Movies/Series
 
 Here’s a collection of movies and series that left a deep impression on me.  
 Different countries, different styles — but all of them have something special.  
@@ -42,15 +40,3 @@ If you’re searching for your next favorite, I hope this list helps!
 - **Gantz: O** — High-energy, underrated sci-fi action.
 - **Midnight Diner: Tokyo Stories** — Warm stories served with food and heart.
 
----
-
-## Final Thoughts
-I believe good stories stay with you long after the screen goes dark.  
-Each of these titles gave me something to think about, to feel, or to dream about.  
-Maybe they’ll do the same for you too.
-
----
-
-## License
-Feel free to share or remix this list however you like.  
-The more stories we share, the bigger the world becomes.
